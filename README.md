@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Jananivasupradha8899
+- 👋 Hi, I’m @Jananivasupradha
 - 👀 I’m interested in ...learning
 - 🌱 I’m currently pursuing ... BTech-IT
 
